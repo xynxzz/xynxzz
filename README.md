@@ -9,9 +9,9 @@
 
 - 💬 Ask me about **About technology, Android, PC, and Others**
 
-- 📫 How to reach me **xynxz720@gmail.com**
+- 📫 How to reach me **ayonimahahaha125@gmail.com**
 
-- ⚡ Fun fact **My name is Zain, I am 16 years old, I was born and raised in Karangasem, Bali, Indonesia, now resides and lives in Denpasar, Bali, Indonesia. Yeah I'm still in high school Multimedia Major**
+- ⚡ Fun fact **My name is Yoga, I am 18 years old, I was born and raised in Karangasem, Bali, Indonesia, now resides and lives in Denpasar, Bali, Indonesia. Yeah I'm still in high school Multimedia Major**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
